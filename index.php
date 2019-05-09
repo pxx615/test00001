@@ -1,14 +1,4 @@
 123weqweqweqwe changes
 
 werwerwerwe
-
-werwerwerwewe
-rad2degwe
-
-sdfksopfksdpofksdofpksopdfkospdkfspodkfopsdkfpo
-
-
-sadasd
-
-qwqweqweqweqweqweqweqweqweqwe
-qwe
+qweq
